@@ -3,3 +3,7 @@
 * Cell: +7 701 567 0330
 * E-mail: dauren.k@gmail.com
 * Telegram: @dauren.k
+# About me
+Sustainability consultant with experience as field environmental specialist, compliance internal auditor.
+# Skills
+Basic html/css knowledge, lots of hours working on Ucoz engine in high school.
