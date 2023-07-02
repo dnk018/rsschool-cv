@@ -1,0 +1,1 @@
+# Dauren Kabylbek - ESG specialist
